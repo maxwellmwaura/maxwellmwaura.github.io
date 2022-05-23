@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Hey there, I'm Maxwell Mwaura. I'm currently  student at Zetech University, pursuing a Bachelors in Information Technology.
+I'm a phone and laptop technician which is my part time job, and also learning software developing.
+Apart from my studies I'm an afro dancer. You can contact me if you need your guests to be entertained at your party.
